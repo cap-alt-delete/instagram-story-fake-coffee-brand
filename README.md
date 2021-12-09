@@ -1,4 +1,4 @@
-# Instagram Story for Fake Coffee Shop
+# Instagram Story for Fake Coffee Shop (fall 2021)
 
 These mock advertisment postcards were created as an assignment for an Integrating Writing and Design Course. All photos used are from Unsplash and are allowed to be used freely for commercial and non-commercial purposes. The graphic being used as an icon for "the Hot Spot" is titled "Cafe", created by Flatart from the Noun Project. The following information about the creation process is pulled from the course's final portfolio design gloss on this piece:
 
